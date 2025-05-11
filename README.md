@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @chakrikaguttameedi
+- 👋 Hi, I’m Chakrika Guttameedi
 - Welcome to my GitHub profile! I'm passionate about learning, building, and contributing to impactful tech projects.
   
 - 👀 I’m interested in ...
