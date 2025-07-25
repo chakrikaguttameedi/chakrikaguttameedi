@@ -11,7 +11,7 @@
 
 - 📫 How to reach me ...
 - 📧 Email: chakrikaguttameedi10@gmail.com
-- 💼 LinkedIn: [linkedin.com/in/chakrikaguttameedi](https://www.linkedin.com/in/guttameedi-chakrika-955085307/)
+- 💼 LinkedIn: [https://www.linkedin.com/in/chakrika-guttameedi-955085307/](https://www.linkedin.com/in/chakrika-guttameedi-955085307/)
   
 - 😄 Pronouns:She/Her
 
